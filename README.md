@@ -13,14 +13,15 @@ Hantech klima ürünleri farklı kullanım alanlarına göre çeşitli serilere 
 Ev ve küçük ofis kullanımları için ideal olan **duvar tipi klimalar**, enerji tasarruflu inverter teknolojisi ile yüksek performans sunar.
 
 Detaylı bilgi:
-https://hdklima.com.tr/hantech-duvar-tipi-klima/
+https://hdklima.com.tr/duvar-tipi-klimalar/
 
 ### Salon Tipi Klima
 
 Geniş alanlar, restoranlar, mağazalar ve büyük ofisler için geliştirilen **salon tipi klimalar** güçlü hava üfleme kapasitesi ile yüksek verim sağlar.
 
 Detaylı bilgi:
-https://hdklima.com.tr/hantech-salon-tipi-klima/
+https://hdklima.com.tr/salon-tipi-klimalar/
+
 
 ### Multi Klima Sistemleri
 
